@@ -1,2 +1,2 @@
-# weifish0.github.io
+# HSNUDDRC
 附中機研社官方網站
